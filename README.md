@@ -7,4 +7,4 @@
 - 💬 Ask me about ...
 - 📫 How to reach me: bellamkondal@aetna.com
 - 😄 Pronouns: 🤔
-- ⚡ Fun fact: I have two first names 😄
+- ⚡ Fun fact: I have two first names but I prefer to go by Kalyani 😄
